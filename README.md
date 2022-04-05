@@ -1,1 +1,2 @@
 # EEP-153-Project-3
+The current social environment in Malawi reflects the reality of low-income countries in the midst of the climate crisis. Malawian communities face extreme poverty rates, high HIV/AIDS infection rates, exacerbated environmental disasters (flooding and heavy rainfalls, and extreme hunger. Through our research, we hope to understand the food choices of Malawian communities as a microcosm of the trends we will see across low-income countries.
